@@ -25,4 +25,4 @@ We recommend you do some self research first before you sell. This is the best w
 
 We hope this helps you get started. 
 
-This is a collaborative document from our Facebook group, which you can join [here](https://www.facebook.com/groups/CollectingCanadianStamps/). If you decide to start collecting yourself, we are happy to have you join as a member.
+This is a collaborative document from our Facebook group, which you can join [here](https://www.facebook.com/groups/CollectingCanadianStamps/). If you decide to start collecting yourself, we are happy to have you join as a member. :)
