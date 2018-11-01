@@ -1,6 +1,6 @@
 ## So you just inherited some stamps, now what?
 
-We are a group of friendly philatelists here to share our love and interest in stamps. This is not a group for trading and selling. Nonetheless, the question of what to do when you inherit a bunch of stamps or a stamp collection has come up enough to make this a document worth creating.
+We are a group of friendly philatelists here to share our love and interest in stamps. This is not a group for trading and selling. Nor is this a group to ask for price checks or how to sell you stamps. Nonetheless, the question of what to do when you inherit a bunch of stamps or a stamp collection has come up enough to make this a document worth creating.
 
 So what can you do when you suddenly find yourself with a stamp collection?
 
@@ -20,8 +20,8 @@ Now that we’ve covered that, what can you do. Here are concrete ways to learn 
 
 * Contact a local stamp club [here](https://canadianstampnews.com/collecting/stamp-clubs/).
 
-We recommend you do some self research first before you sell. This is the best way to protect yourself. You can also use this helpful visual search to help you get started, available [here](http://www.collectionscanada.ca/archivianet/020117/020117030432_e.html) from Collections Canada,
+We recommend you do some self research first before you sell. This is the best way to protect yourself. You can also use this helpful visual search to help you get started, available [here](http://www.collectionscanada.ca/archivianet/020117/020117030432_e.html) from Collections Canada.
 
-We hope this helps you get started. 
+We hope all of this info helps you get started in the right direction.
 
-This is a collaborative document from our Facebook group, which you can join [here](https://www.facebook.com/groups/CollectingCanadianStamps/). If you decide to start collecting yourself, we are happy to have you join as a member. :)
+This is a collaborative document from our Facebook group, which you can join [here](https://www.facebook.com/groups/CollectingCanadianStamps/). If you decide to start collecting yourself (which is a great hobby to take on, by the way), you can get an idea on how to get started [here][https://www.stanleygibbons.com/blog/beginners-guide-to-stamp-collecting/]
