@@ -20,8 +20,7 @@ Now that we’ve covered that, what can you do. Here are concrete ways to learn 
 
 * Contact a local stamp club [here](https://canadianstampnews.com/collecting/stamp-clubs/).
 
-We recommend you do some self research first before you sell. This is the best way to protect yourself. You can also use this helpful visual search to help you get started, available [here]
-(http://www.collectionscanada.ca/archivianet/020117/020117030432_e.html) from Collections Canada,
+We recommend you do some self research first before you sell. This is the best way to protect yourself. You can also use this helpful visual search to help you get started, available [here](http://www.collectionscanada.ca/archivianet/020117/020117030432_e.html) from Collections Canada,
 
 We hope this helps you get started. 
 
