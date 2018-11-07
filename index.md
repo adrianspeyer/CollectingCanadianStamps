@@ -1,6 +1,6 @@
 ## So you just inherited some stamps, now what?
 
-We are a group of friendly philatelists here to share our love and interest in stamps. This is not a group for trading and selling. Nor is this a group to ask for price checks or how to sell you stamps. Nonetheless, the question of what to do when you inherit a bunch of stamps or a stamp collection has come up enough to make this a document worth creating.
+We are a group of friendly philatelists here to share our love and interest in stamps. This is not a group for trading and selling. Nor is this a group to ask for price checks or how to sell your stamps. Nonetheless, the question of what to do when you inherit a bunch of stamps or a stamp collection has come up enough to make this a document worth creating.
 
 So what can you do when you suddenly find yourself with a stamp collection?
 
